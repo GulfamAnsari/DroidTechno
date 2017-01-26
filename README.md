@@ -1,2 +1,0 @@
-# DroidTechno
-Hi
